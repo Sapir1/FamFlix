@@ -1,9 +1,8 @@
 # FamFlix
 Movie Night Voting App
 
-
+this is a bad idea please stop this
 
 
 heya girl!!!
 how u doin
-i'm so excited for this project ee!!!!!!!!!!
